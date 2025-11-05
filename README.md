@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Customer Experience**
 
-- 👨‍💻 All of my projects are available at [https://sanjaiyramesh333.wixsite.com/portfolio](https://sanjaiyramesh333.wixsite.com/portfolio)
+- 👨‍💻 All of my projects are available at [https://sanjaiyramesh333.wixsite.com/portfolio](https://sanjaiyrameshkumar.wixsite.com/portfolio)
 
 - 📝 I regularly write articles on [https://medium.com/@poetastersandy](https://medium.com/@poetastersandy)
 
